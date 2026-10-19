@@ -1,4 +1,4 @@
-Eshwar Arunkumar Vimala
+Eshwar ARUNKUMAR VIMALA
 
 Finance, risk and data analytics. Based in Paris, France.
 
